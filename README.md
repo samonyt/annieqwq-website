@@ -1,6 +1,6 @@
 # annieqwq-website
 
-A website made for my ex girlfriend, Annieqwq. 😋
+A website made for a psychopath, Annieqwq. 😋
 
 ## About this site
 
